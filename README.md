@@ -23,6 +23,10 @@ I am a passionate web developer with 2 years of experience in creating visually 
 
 ## Contact
 
-Feel free to reach out to me via email at [your-email@example.com](mailto:your-email@example.com) or connect with me on [LinkedIn](https://www.linkedin.com/in/your-profile).
+Feel free to reach out to me via email at asifahmed13ak@gmail.com or connect with me on Discord: Reyan#8797
+
+[Discord Profile](https://discord.com/users/879714530769391686)
 
 Looking forward to connecting with you and discussing potential collaborations!
+
+If you'd like to contribute to my website, you are welcome to do so!
